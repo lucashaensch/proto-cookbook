@@ -6,7 +6,7 @@ xxxx - 8 anos atrás disse
 Outro usuário disse:
 > entaum.. tem canapé de tudo qto é tipo...
 
-# Links sobre Canapés
+## Links sobre Canapés
 [Link 1](http://gshow.globo.com/receitas/tipos-de-prato/entradas/canapes)
 [Link 2](http://www.bbcgoodfood.com/howto/guide/top-ten-party-canapes)
 [Link 3](http://en.wikipedia.org/wiki/Canap%C3%A9)
