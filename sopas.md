@@ -54,3 +54,28 @@
 * Levar ao forno bem forte somente para gratinar 10 a 15 minutos
 * Retirar do forno e servir imediatamente
 
+# Sopa de camarão
+
+### Ingredientes:
+
+* 1/2 kg de camarão
+* 1 colher ( sopa ) de azeite
+* 1 colher ( sopa ) de manteiga
+* 1 cebola
+* Cheiro verde
+* 2 gemas
+* 2 dentes de alho espremidos
+* 2 copos de leite ( 250 ml )
+* 4 batatas
+* 4 colheres ( sopa ) de milho em lata
+* 2 colheres ( sopa ) de farinha de trigo
+* Sal, pimenta e suco de limão
+
+### Modo de preparo:
+
+* Corte os camarões em pedaços quando meio congelados
+* Tempere-os com sal, pimenta, limão e alho
+* Faça um bom refogado dos temperos com a gordura e adicione os camarões, abafando para cozinhar
+* Junte 2 l de água e a batata cortada miúda
+* Depois de cozida a sopa e reduzido o líquido, engrossar com gemas e 2 colheres de trigo desmanchadas no leite
+* Antes de servir, adicione uma colher de manteiga e, se gostar, de salsa bem cortadinha
