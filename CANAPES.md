@@ -1,3 +1,6 @@
+# O que é canapé:
+Segundo o Yahoo! Respostas é o seguinte: “é vários tipos de salgados”
+
 # Links sobre Canapés
 http://gshow.globo.com/receitas/tipos-de-prato/entradas/canapes
 http://www.bbcgoodfood.com/howto/guide/top-ten-party-canapes
