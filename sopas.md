@@ -1,4 +1,4 @@
-# --- Sopa de batata ---
+# Sopa de batata
 
 ### Ingredientes:
 
@@ -22,7 +22,7 @@
 * Colocar o macarrão e a lingüiça
 * Deixar no fogo médio até que estejam cozidos
 
-# --- Sopa de cebola gratinada ---
+# Sopa de cebola gratinada
 
 ### Ingredientes:
 
