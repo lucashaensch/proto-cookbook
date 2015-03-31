@@ -3,6 +3,9 @@ Segundo o Yahoo! Respostas é o seguinte:
 xxxx - 8 anos atrás disse
 > “é vários tipos de salgados”
 
+Outro usuário disse:
+> entaum.. tem canapé de tudo qto é tipo...
+
 # Links sobre Canapés
 http://gshow.globo.com/receitas/tipos-de-prato/entradas/canapes
 http://www.bbcgoodfood.com/howto/guide/top-ten-party-canapes
