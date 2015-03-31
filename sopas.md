@@ -79,3 +79,32 @@
 * Junte 2 l de água e a batata cortada miúda
 * Depois de cozida a sopa e reduzido o líquido, engrossar com gemas e 2 colheres de trigo desmanchadas no leite
 * Antes de servir, adicione uma colher de manteiga e, se gostar, de salsa bem cortadinha
+
+# Sopa de cogumelos
+
+### Ingredientes:
+
+* 2 colheres de sopa de manteiga
+* 1 cebola pequena bem picadinha
+* 300 g de cogumelos picadinhos (fresco de preferencia - qualquer tipo de cogumelo)
+* 1 colher de sopa de paprica
+* 1 colher de sopa de molho de soja (shoyo)
+* 2 cubos de caldo de galinha dissolvidos em 2 xícaras de água fervente
+* 1 xícara de leite
+* 3 colheres (sopa) de farinha de trigo
+* Sal e pimenta-do-reino a gosto
+* 2 colheres (chá) de suco de limão
+* 1/4 de salsinha (cheiro verde) bem picadinho
+* Salsinha (cheiro verde) e creme de leite para decorar
+
+### Modo de preparo:
+
+* Em uma panela derreta a manteiga, adicione a cebola ate ficar transparente (mais ou menos 10 minutos - fogo médio)
+* Adicione os cogumelos ate cozinhar bem ( mais ou menos 10 minutos - fogo médio)
+* Adicione a água com o caldo de galinha já dissolvido, a páprica, o shoyu, misture bem e deixe no fogo baixo por 15 minutos
+* Misture bem o leite com a farinha de trigo separadamente em uma vasilha e em seguida adicione com os demais ingredientes da panela
+* Misture bem e deixe cozinhando por mais 15 minutos em fogo baixo
+* Por ultimo adicione o suco de limão, o sal* e a pimenta-do-reino
+* Decore com gotas de creme de leite e folhas de salsinha fresca
+* Dica: Cuidado com o sal! O caldo de galinha já vem com sal e dependendo a manteiga também
+* As vezes não precisa adicionar mais! O creme de leite alem de enfeitar, dá um gostinho especial na sopa!
