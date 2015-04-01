@@ -59,16 +59,16 @@
 ### Ingredientes:
 
 * 1/2 kg de camarão
-* 1 colher ( sopa ) de azeite
-* 1 colher ( sopa ) de manteiga
+* 1 colher (sopa) de azeite
+* 1 colher (sopa) de manteiga
 * 1 cebola
 * Cheiro verde
 * 2 gemas
 * 2 dentes de alho espremidos
-* 2 copos de leite ( 250 ml )
+* 2 copos de leite (250 ml)
 * 4 batatas
-* 4 colheres ( sopa ) de milho em lata
-* 2 colheres ( sopa ) de farinha de trigo
+* 4 colheres (sopa) de milho em lata
+* 2 colheres (sopa) de farinha de trigo
 * Sal, pimenta e suco de limão
 
 ### Modo de preparo:
@@ -100,7 +100,7 @@
 ### Modo de preparo:
 
 * Em uma panela derreta a manteiga, adicione a cebola ate ficar transparente (mais ou menos 10 minutos - fogo médio)
-* Adicione os cogumelos ate cozinhar bem ( mais ou menos 10 minutos - fogo médio)
+* Adicione os cogumelos ate cozinhar bem (mais ou menos 10 minutos - fogo médio)
 * Adicione a água com o caldo de galinha já dissolvido, a páprica, o shoyu, misture bem e deixe no fogo baixo por 15 minutos
 * Misture bem o leite com a farinha de trigo separadamente em uma vasilha e em seguida adicione com os demais ingredientes da panela
 * Misture bem e deixe cozinhando por mais 15 minutos em fogo baixo
